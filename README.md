@@ -1,5 +1,4 @@
-- Pixel / Apple
-- Any Prns but It
+fvphsgroptvawrfwilfcytfsas
 
 <!---
 ExplodingPixelz/ExplodingPixelz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
